@@ -1,2 +1,2 @@
 # hello-world
-my name is Dominic am from Ghana and need friend here to helpme learn to code.thanks
+my name is Dominic  and need friends here to help me learn to code.thanks
